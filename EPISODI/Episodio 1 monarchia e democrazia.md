@@ -1,4 +1,4 @@
-La puntata del podcast originale al quale si riferisce questa traduzione è: https://saifedean.com/podcast/1-monarchy-and-democracy
+La puntata del podcast: https://saifedean.com/podcast/1-monarchy-and-democracy
 
 Pubblicità
 
