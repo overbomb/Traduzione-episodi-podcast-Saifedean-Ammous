@@ -1,77 +1,87 @@
 
 Pubblicità
 
-Quindi per renderli disponibili pubblicamente dovrebbe probabilmente, si spera, risultare interessante per le persone che
-non stanno seguendo corsi perché penso che ci sia molto nelle discussioni che è rilevante per tutti i tipi di altri argomenti e in
-particolare se sei interessato a Bitcoin o all'economia austriaca, penso che troverai questa discussione interessante. Quindi
-spero che ti piaccia e, naturalmente, se ti piace, non esitare a iscriverti ai corsi su saifedean.com.  Quindi, di solito,
+Per renderli disponibili pubblicamente dovrebbe probabilmente, si spera, risultare interessante per le persone che
+non stanno seguendo corsi perché penso che ci sia molto nelle discussioni che è rilevante per tutti i tipi di altri 
+argomenti e inparticolare se sei interessato a Bitcoin o all'economia austriaca, penso che troverai questa discussione 
+interessante. 
+Spero che ti piaccia e, naturalmente, se ti piace, non esitare a iscriverti ai corsi su saifedean.com.  Di solito,
 ricevo domande via email da persone che stanno seguendo i corsi e durante il seminario affronterò alcune delle
-domande. Inizialmente  discuterò io e poi avremo una discussione più aperta in cui tutti possono partecipare. Quindi, per la
-discussione di oggi, la prima domanda che volevo trattare è una domanda sulla monarchia. Specificamente, questo è qualcosa di cui
-abbiamo discusso in alcuni dei corsi e nei seminari precedenti e in una settimana precedente abbiamo discusso l'ascesa della Gran
-Bretagna e come la Gran Bretagna sia diventata un paese ricco e abbiamo menzionato la monarchia, ma oggi penso di voler cogliere
-l'occasione per approfondire l'argomento e guardare l'argomento economico a favore della monarchia, perché la monarchia potrebbe
-non essere una così brutta idea. Per cominciare, lasciatemi dire che mi identifico come anarchico, quindi non mi definirei un
-monarchico, ma il libro che è stato piuttosto strumentale per me è stato "Democrazia, il Dio che fallì" di Hans Hermann Hoppe.
+domande. Inizialmente  discuterò io e poi avremo una discussione più aperta in cui tutti possono partecipare. Quindi, per 
+la discussione di oggi, la prima domanda che volevo trattare è una domanda sulla monarchia. Specificamente, questo è 
+qualcosa di cui abbiamo discusso in alcuni dei corsi e nei seminari precedenti e in una settimana precedente abbiamo 
+discusso l'ascesa della Gran Bretagna e come la Gran Bretagna sia diventata un paese ricco e abbiamo menzionato la 
+monarchia, ma oggi penso di voler cogliere l'occasione per approfondire l'argomento e guardare l'argomento economico a 
+favore della monarchia, perché la monarchia potrebbe non essere una così brutta idea. Per cominciare, lasciatemi dire che 
+mi identifico come anarchico, quindi non mi definirei un monarchico, ma il libro che è stato piuttosto strumentale per me 
+è stato "Democrazia, il Dio che fallì" di Hans Hermann Hoppe.
+
 Hoppe è  anarchico, e  questo libro  non è un libro in difesa della monarchia e non si considera un
-monarchico eppure questp libro probabilmente fa il miglior argomento a favore della monarchia, o almeno quello che ho incontrato,
-sono sicuro che potrebbero esserci argomenti migliori là fuori, ma il migliore che ho visto e l'argomento più convincente per la
-monarchia penso sia in quel libro. 
+monarchico eppure questp libro probabilmente fa il miglior argomento a favore della monarchia, o almeno quello che ho 
+incontrato, sono sicuro che potrebbero esserci argomenti migliori là fuori, ma il migliore che ho visto e l'argomento più 
+convincente per la monarchia penso sia in quel libro. 
 
 
 Anche se l'autore è un anarchico e io mi considero, anche se penso di essere anch'io un
 anarchico, mi trovo a essere un po' più anarchico di Hoppe, perché penso che il suo libro possa essere contrario alle
 sue intenzioni, ma fa un ottimo lavoro. Ero un anarchico prima di leggere il libro,
 ma ha avuto l'impatto di farmi diventare un po' più monarchico perché  vedo la monarchia in modo molto più
-favorevole dopo aver letto il libro. Quindi, prima di iniziare, vorrei sottolineare che, prima di presentare  arogomenti a favore
-della monarchia,è importante motivarli partendo dall'idea  che chiamo "agnosticismo del sistema politico". Questo rappresenta una
-fase di transizione che si attraversa mentre inizi a comprendere l'economia, prima di arrivare a definirti anarchico e prima di
-confrontarsi con il fatto che la democrazia non è necessariamente la migliore idea mai inventata.
+favorevole dopo aver letto il libro. Quindi, prima di iniziare, vorrei sottolineare che, 
+prima di presentare  arogomenti a favore della monarchia,è importante motivarli partendo dall'idea  
+che chiamo "agnosticismo del sistema politico".
+Questo rappresenta una fase di transizione che si attraversa mentre inizi a comprendere l'economia, prima di arrivare a 
+definirti anarchico e prima di confrontarsi con il fatto che la democrazia non è necessariamente la migliore idea mai 
+inventata.
 
-Prima di avere l'onestà di dirti, la democrazia è semplicemente un cattivo sistema politico. Ho avuto questa fase in cui pensavo che il sistema politico stesso non
+Prima di avere l'onestà di dirti, la democrazia è semplicemente un cattivo sistema politico. Ho avuto questa fase in cui 
+pensavo che il sistema politico stesso non
 importasse perché vedi esempi di democrazie che fanno cose cattive e vedi esempi di monarchie che fanno cose buone.
 
-C'è un po' di contraddizione in questo ed il modo per risolvere  è ossrvarla  dal punto dell' economista. Il modo in cui la vedo è che non importa come
-scegli il sistema politico, ciò che conta sono le politiche economiche adottate dalle persone al potere, indipendentemente dal
-sistema politico che seguono. Quindi, se hai una democrazia o una dittatura o una monarchia o una teocrazia o un sistema
-aristocratico o qualsiasi tipo di sistema politico, se le persone al comando di quel sistema decidono semplicemente di lasciare
-che tutti commercino e comprino e vendano cose come vogliono senza imporre restrizioni su di loro, allora va bene. Allora le cose
-funzionano bene. In particolare, si tratta di libertà economica. La cosa più importante probabilmente è la
-libertà economica perché ci sono altre libertà e contano. Se le persone sono in grado di prendersi cura
-della propria libertà economica, se sono in grado di gestire i propri affari economici senza un intervento
-significativo da parte del governo, allora, tutto il resto diventa secondario, diventa un dettaglio irrilevante.
-Tutto il resto diventa non davvero così importante rispetto al fatto che, la libertà economica è tutto ciò di cui
-chiunque ha bisogno per poter garantire la propria sopravvivenza. Se non hai libertà economica, allora non sei in grado di
-garantire la tua sopravvivenza ed è colpa degli altri se non sei in grado di garantirla e poi le cose vanno male. Penso che ci sia
-sicuramente una verità in questo: qualunque sistema politico venga scelto, se le persone al potere finiscono per essere al comando
-e gestire tutti i tipi di attività economiche, le cose andranno male. Non importa come vengono scelti. Dopo aver
-letto "Democrazia, il Dio che fallì" di Hans Hermann Hoppe, dopo aver letto quel libro, non puoi fare a meno di notare che ci sono
-certe cose intrinseche nella democrazia che portano a cose terribili e ci sono certe cose intrinseche alla monarchia che
-sono migliori. Non credo sia una cosa popolare da dire, ma è molto difficile fare il caso contro di essa.
+C'è un po' di contraddizione in questo ed il modo per risolvere  è ossrvarla  dal punto dell' economista. Il modo in cui 
+la vedo è che non importa come scegli il sistema politico, ciò che conta sono le politiche economiche adottate dalle 
+persone al potere, indipendentemente dal sistema politico che seguono. Quindi, se hai una democrazia o una dittatura o una 
+monarchia o una teocrazia o un sistema aristocratico o qualsiasi tipo di sistema politico, se le persone al comando di 
+quel sistema decidono semplicemente di lasciare che tutti commercino e comprino e vendano cose come vogliono senza imporre 
+restrizioni su di loro, allora va bene. Allora le cose funzionano bene. In particolare, si tratta di libertà economica.
+La cosa più importante probabilmente è la libertà economica perché ci sono altre libertà e contano. 
+Se le persone sono in grado di prendersi cura della propria libertà economica, se sono in grado di gestire i propri affari 
+economici senza un intervento significativo da parte del governo, allora, tutto il resto diventa secondario, diventa un 
+dettaglio irrilevante. Tutto il resto diventa non davvero così importante rispetto al fatto che,
+la libertà economica è tutto ciò di cui chiunque ha bisogno per poter garantire la propria sopravvivenza.
+Se non hai libertà economica, allora non sei in grado di garantire la tua sopravvivenza ed è colpa degli altri se non sei 
+in grado di garantirla e poi le cose vanno male.
+Penso che ci sia sicuramente una verità in questo: qualunque sistema politico venga scelto, se le persone al potere 
+finiscono per essere al comando e gestire tutti i tipi di attività economiche, le cose andranno male.
+Non importa come vengono scelti. Dopo aver letto "Democrazia, il Dio che fallì" di Hans Hermann Hoppe,  non puoi fare a 
+meno di notare che ci sono certe cose intrinseche nella democrazia che portano a cose terribili e ci sono certe cose 
+intrinseche alla monarchia che sono migliori. Non credo sia una cosa popolare da dire, ma è molto difficile fare il caso 
+contro di essa. 
 
-E' comprensibile che non abbastanza persone lo stiano dicendo pubblicamente, ma penso che la quantità di prove "là fuori" sia
-estremamente convincente. Conosco particolarmente bene la parte del mondo da cui provengo, il Medio Oriente, è
-assolutamente sorprendente quanto siano diverse le cose in paesi molto, molto simili che finiscono per essere molto diversi l'uno
-dall'altro solo a causa dei sistemi politici. E' innegabilmente i paesi che sono rimasti con le monarchie stanno facendo
-infinitamente meglio rispetto ai paesi che non lo sono in  ogni misura. Basti guardare al Nord Africa, il Marocco. 
-La cosa bella di fare questa analisi nell'anno 2020 è  che ci troviamo  esattamente 100 anni dopo la fine della Prima Guerra Mondiale e
-dopo il rimescolamento del Medio Oriente, dove tutti questi paesi hanno iniziato a prendere forma nella loro
-forma moderna.  Cento anni è un lungo periodo, quindi possiamo esprimere un giudizio. Questo è un intervallo di tempo
+E' comprensibile che non abbastanza persone lo stiano dicendo pubblicamente, ma penso che la quantità di prove "là fuori" 
+sia estremamente convincente. Conosco particolarmente bene la parte del mondo da cui provengo, il Medio Oriente, è
+assolutamente sorprendente quanto siano diverse le cose in paesi molto, molto simili che finiscono per essere molto 
+diversi l'uno dall'altro solo a causa dei sistemi politici. E' innegabilmente i paesi che sono rimasti con le monarchie
+stanno facendo infinitamente meglio rispetto ai paesi che non lo sono in  ogni misura. Basti guardare al Nord Africa, il 
+Marocco. 
+La cosa bella di fare questa analisi nell'anno 2020 è  che ci troviamo  esattamente 100 anni dopo la fine della Prima
+Guerra Mondiale e dopo il rimescolamento del Medio Oriente, dove tutti questi paesi hanno iniziato a prendere forma nella 
+loro forma moderna.  Cento anni è un lungo periodo, quindi possiamo esprimere un giudizio. Questo è un intervallo di tempo
 sufficientemente lungo e poi il periodo di tempo perfetto. Per cento anni, sono diverse generazioni. Se
-riesci a governare un paese pacificamente e farlo crescere e prosperare in cento anni, non puoi sfuggire alla conclusione che devi
-aver fatto qualcosa di giusto. Altrimenti, se hai avuto cento anni di sangue e omicidi e guerre e distruzione e povertà e miseria,
-è molto difficile sostenere che sia stata solo pura coincidenza.
+riesci a governare un paese pacificamente e farlo crescere e prosperare in cento anni, non puoi sfuggire alla conclusione
+che devi aver fatto qualcosa di giusto. Altrimenti, se hai avuto cento anni di sangue e omicidi e guerre e distruzione e 
+povertà e miseria, è molto difficile sostenere che sia stata solo pura coincidenza.
 Credo che in tutto il mondo arabo si vedano questi esempi ripetutamente.
 Il Marocco, per esempio, è stabile, pacifico e relativamente abbastanza prospero rispetto ad altri paesi
 nordafricani. Vedi la Libia, l'Algeria e l'Egitto hanno attraversato enormi quantità di turbolenze, insicurezze e guerre
 durante quel periodo. Naturalmente, questo non significa che il Marocco sia perfetto, se guardi indietro agli ultimi
-100 anni, preferiresti vivere sotto la monarchia marocchina? Oppure sotto i regimi repubblicani che hanno governato negli altri paesi
-nordafricani? Non credo ci sia alcun dubbio, se dovessi valutare onestamente.
+100 anni, preferiresti vivere sotto la monarchia marocchina? Oppure sotto i regimi repubblicani che hanno governato negli 
+altri paesi nordafricani? Non credo ci sia alcun dubbio, se dovessi valutare onestamente.
 
-La ragione per cui è difficile è che l'Egitto, per esempio, ha avuto una monarchia fino agli anni '50. Conosco abbastanza bene l'Egitto, sono cresciuto
-leggendo molto sull'Egitto da molti scrittori egiziani e guardando film egiziani. Ho famiglia lì e ho viaggiato lì, quindi conosco
-il paese abbastanza bene. Penso che ci sia un crescente riconoscimento ora che le persone si rendono conto che avevano qualcosa di
-buono sotto la monarchia. C'è stata una recente soap opera realizzata sulla monarchia, e ha avuto molta popolarità. Credo che se
+La ragione per cui è difficile è che l'Egitto, per esempio, ha avuto una monarchia fino agli anni '50. Conosco abbastanza 
+bene l'Egitto, sono cresciuto leggendo molto sull'Egitto da molti scrittori egiziani e guardando film egiziani. Ho 
+famiglia lì e ho viaggiato lì, quindi conosco il paese abbastanza bene. Penso che ci sia un crescente riconoscimento ora
+che le persone si rendono conto che avevano qualcosa di buono sotto la monarchia. C'è stata una recente soap opera 
+realizzata sulla monarchia, e ha avuto molta popolarità. Credo che se
 guardi al Cairo negli anni '30, era una città incredibilmente bella, pulita e organizzata. Direi che in molti modi era molto
 meglio di come è ora. Naturalmente, oggi è una città molto più grande e più avanzata perché la tecnologia è avanzata enormemente
 negli ultimi 90 anni.  Tuttavia, penso che ci fosse un elemento di organizzazione e ordine che era presente all'epoca, che è quasi
