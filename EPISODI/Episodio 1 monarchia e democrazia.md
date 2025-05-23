@@ -2,10 +2,7 @@ La puntata del podcast: https://saifedean.com/podcast/1-monarchy-and-democracy
 
 Pubblicità
 
-Per renderli disponibili pubblicamente dovrebbe probabilmente, si spera, risultare interessante per le persone che
-non stanno seguendo corsi perché penso che ci sia molto nelle discussioni che è rilevante per tutti i tipi di altri 
-argomenti e inparticolare se sei interessato a Bitcoin o all'economia austriaca, penso che troverai questa discussione 
-interessante. 
+Se sei interessato a Bitcoin o all'economia austriaca, penso che troverai questa discussione interessante. 
 Spero che ti piaccia e, naturalmente, se ti piace, non esitare a iscriverti ai corsi su saifedean.com.  Di solito,
 ricevo domande via email da persone che stanno seguendo i corsi e durante il seminario affronterò alcune delle
 domande. Inizialmente  discuterò io e poi avremo una discussione più aperta in cui tutti possono partecipare. Quindi, per 
