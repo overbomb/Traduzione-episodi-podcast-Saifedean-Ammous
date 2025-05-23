@@ -1,7 +1,7 @@
 
 Pubblicità
 
-"Quindi per renderli disponibili pubblicamente dovrebbe probabilmente, si spera, risultare interessante per le persone che
+Quindi per renderli disponibili pubblicamente dovrebbe probabilmente, si spera, risultare interessante per le persone che
 non stanno seguendo corsi perché penso che ci sia molto nelle discussioni che è rilevante per tutti i tipi di altri argomenti e in
 particolare se sei interessato a Bitcoin o all'economia austriaca, penso che troverai questa discussione interessante. Quindi
 spero che ti piaccia e, naturalmente, se ti piace, non esitare a iscriverti ai corsi su saifedean.com.  Quindi, di solito,
