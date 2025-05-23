@@ -81,157 +81,156 @@ La ragione per cui è difficile è che l'Egitto, per esempio, ha avuto una monar
 bene l'Egitto, sono cresciuto leggendo molto sull'Egitto da molti scrittori egiziani e guardando film egiziani. Ho 
 famiglia lì e ho viaggiato lì, quindi conosco il paese abbastanza bene. Penso che ci sia un crescente riconoscimento ora
 che le persone si rendono conto che avevano qualcosa di buono sotto la monarchia. C'è stata una recente soap opera 
-realizzata sulla monarchia, e ha avuto molta popolarità. Credo che se
-guardi al Cairo negli anni '30, era una città incredibilmente bella, pulita e organizzata. Direi che in molti modi era molto
-meglio di come è ora. Naturalmente, oggi è una città molto più grande e più avanzata perché la tecnologia è avanzata enormemente
-negli ultimi 90 anni.  Tuttavia, penso che ci fosse un elemento di organizzazione e ordine che era presente all'epoca, che è quasi
-scomparso.
+realizzata sulla monarchia, e ha avuto molta popolarità. Credo che se guardi al Cairo negli anni '30, era una città 
+incredibilmente bella, pulita e organizzata. Direi che in molti modi era molto meglio di come è ora. Naturalmente, oggi è 
+una città molto più grande e più avanzata perché la tecnologia è avanzata enormemente negli ultimi 90 anni.
+Tuttavia, penso che ci fosse un elemento di organizzazione e ordine che era presente all'epoca, che è quasi scomparso.
 Penso che tu possa vedere questo schema praticamente ovunque. Anche l'Iraq, lo stesso. L'Iraq ha avuto una
 monarchia per un po', e poi quando è passato sulla strada di una repubblica democratica rivoluzionaria, le cose sono andate
 deteriorandosi in modo orribile. Se confronti, la Siria è stata solo una monarchia. 
 
-La Siria e il Libano sono stati effettivamente una monarchia per soli pochi mesi, meno di un anno, quando il re hashemita Faisal è stato messo al comando di essi, 
-ma poi se ne andò e prese il comando dell'Iraq. Se confronti la Siria e l'Iraq con la Giordania, che cento anni fa era un'area molto più
-povera,  meno popolata e con molte meno risorse noterai che, guardando gli ultimi 100 anni, la situazione è diversa.
-Amman era una piccola cittadina, mentre Damasco e Baghdad erano città molto antiche e molto consolidate con un'enorme quantità di
-capitale umano e fisico. Aleppo, nel nord della Siria, era una delle città più ricche del mondo in quel periodo. Era una delle
-principali città dell'Impero Ottomano. Queste città erano molto più avanzate 100 anni fa, ma  nel corso di questi 100 anni,
-hanno attraversato un'enorme quantità di guerre, conflitti, distruzione e fallimenti governativi.
-Se le confronti con la Giordania, che ha sostanzialmente vissuto una pace ininterrotta per quasi 100 anni, il contrasto è davvero sorprendente.
-Un altro esempio dal mondo arabo è lo Yemen e Amman, che sono due paesi simili. Amman è una monarchia ed è stata molto pacifica e continua a crescere e
-prosperare. Guardando anche i paesi del Golfo che sono monarchie, la differenza è piuttosto sorprendente.
-
-In tutto il mondo arabo,  le monarchie stanno facendo molto meglio delle repubbliche, e le repubbliche hanno quasi sempre
-avuto violenza domestica, conflitti interni, guerre, invasioni e così via. È difficile guardare tutti
-questi esempi e non vedere un modello  e leggendo Hans Hermann Hoppe si puo comprendere che c'è una ragione molto valida per questo modello.
+La Siria e il Libano sono stati effettivamente una monarchia per soli pochi mesi, meno di un anno, quando il re hashemita 
+Faisal è stato messo al comando di essi, ma poi se ne andò e prese il comando dell'Iraq. Se confronti la Siria e l'Iraq 
+con la Giordania, che cento anni fa era un'area molto più povera,  meno popolata e con molte meno risorse noterai che, 
+guardando gli ultimi 100 anni, la situazione è diversa.
+Amman era una piccola cittadina, mentre Damasco e Baghdad erano città molto antiche e molto consolidate con un'enorme 
+quantità di capitale umano e fisico. Aleppo, nel nord della Siria, era una delle città più ricche del mondo in quel 
+periodo. Era una delle principali città dell'Impero Ottomano. Queste città erano molto più avanzate 100 anni fa, ma  nel 
+corso di questi 100 anni,hanno attraversato un'enorme quantità di guerre, conflitti, distruzione e fallimenti governativi.
+Se le confronti con la Giordania, che ha sostanzialmente vissuto una pace ininterrotta per quasi 100 anni, il contrasto è
+davvero sorprendente. Un altro esempio dal mondo arabo è lo Yemen e Amman, che sono due paesi simili.
+Amman è una monarchia ed è stata molto pacifica e continua a crescere e prosperare. Guardando anche i paesi del Golfo che 
+sono monarchie, la differenza è piuttosto sorprendente. In tutto il mondo arabo,  le monarchie stanno facendo molto meglio
+delle repubbliche, e le repubbliche hanno quasi sempre avuto violenza domestica, conflitti interni, guerre, invasioni e 
+così via. È difficile guardare tutti questi esempi e non vedere un modello  e leggendo Hans Hermann Hoppe si puo
+comprendere che c'è una ragione molto valida per questo modello.
 
 La migliore tesi a favore delle monarchie proviene dal libro di Hoppe, ed è per questo che penso sia
 la difesa più eloquente della monarchia, perché molti dei monarchici difendono la monarchia basandosi su motivi non
 molto rigorosi, cose come i diritti divini dei re e Dio vuole i re e così via, che possono essere convincenti per alcuni,
-ma se sei qui al seminario come me, sarai molto meglio persuaso da cose come "la preferenza temporale", ed è questo è il nocciolo
-dell'argomento di Hans Hermann Hoppe nel libro "Democrazia, il Dio che fallì".
+ma se sei qui al seminario come me, sarai molto meglio persuaso da cose come "la preferenza temporale", ed è questo è il
+nocciolo dell'argomento di Hans Hermann Hoppe nel libro "Democrazia, il Dio che fallì".
 
 Nel libro scrive che la monarchia incoraggia i governanti ad avere una bassa preferenza temporale e a pensare al futuro
-ed al lungo termine, quindi è nel loro interesse migliorare la qualità della vita e il tenore di vita delle persone nel loro paese per il lungo periodo,
-perché vogliono lasciare ai loro figli una società prospera e funzionale da cui i figli possono governare e da cui possono estrarre tasse.
-Quindi, stanno giocando a un gioco molto lungo, hanno un orizzonte temporale molto ampio, e quando pensano a quanto denaro stanno per sottrarre a te, e diciamolo, è
-davvero quello per cui serve il governo, sia esso monarchia o democrazia, se stanno pensando a quanto denaro prenderanno da te, il
-loro calcolo è molto diverso rispetto a quello di un governo eletto democraticamente, perché il governo eletto democraticamente è
-insicuro.
-Dieci anni al potere non si tratta di "lungo periodo" e sono incerti. Quindi sei al potere per quattro anni, forse ne otterrai
-altri quattro, forse no, forse non finirai nemmeno tutti e quattro gli anni, forse verrai messo in impeachment o ci sarà
-un'elezione anticipata o qualcosa del genere, quindi non sai mai davvero quanto tempo rimarrai lì, e in un sistema di democrazia
-in cui cambiamo costantemente i governanti ogni pochi anni, questi governanti si rendono conto che quando sono al potere, hanno
-solo quei tre, cinque o dieci anni in cui possono prendere risorse e garantire la loro famiglia e la loro ricchezza. Quindi,
-poiché sono solo tre, quattro, cinque anni, sei fortemente incentivato a pensare il più possibile al presente con poca
-considerazione per le conseguenze tra 100 anni o anche 20 anni da ora. D'altra parte, se sei un monarca, se stai pensando a
-prendere soldi dalle persone oggi, non ti preoccupi solo di quanto più denaro puoi prendere oggi, ma ti preoccupi anche di quanto
-denaro i tuoi figli possono prendere in futuro, quindi stai pensando a lungo termine. Un modo per spiegarlo è il confronto tra cacciatore e allevatore.
+ed al lungo termine, quindi è nel loro interesse migliorare la qualità della vita e il tenore di vita delle persone nel 
+loro paese per il lungo periodo, perché vogliono lasciare ai loro figli una società prospera e funzionale da cui i figli 
+possono governare e da cui possono estrarre tasse. Quindi, stanno giocando a un gioco molto lungo, hanno un orizzonte 
+temporale molto ampio, e quando pensano a quanto denaro stanno per sottrarre a te, e diciamolo, è
+davvero quello per cui serve il governo, sia esso monarchia o democrazia, se stanno pensando a quanto denaro prenderanno 
+da te, il loro calcolo è molto diverso rispetto a quello di un governo eletto democraticamente, perché il governo eletto 
+democraticamente è insicuro.
+Dieci anni al potere non si tratta di "lungo periodo" e sono incerti. Quindi sei al potere per quattro anni, forse ne 
+otterrai altri quattro, forse no, forse non finirai nemmeno tutti e quattro gli anni, forse verrai messo in impeachment o 
+ci sarà un'elezione anticipata o qualcosa del genere, quindi non sai mai davvero quanto tempo rimarrai lì, e in un sistema 
+di democrazia in cui cambiamo costantemente i governanti ogni pochi anni, questi governanti si rendono conto che quando 
+sono al potere, hanno solo quei tre, cinque o dieci anni in cui possono prendere risorse e garantire la loro famiglia e la
+loro ricchezza. Poiché sono solo tre, quattro, cinque anni, sei fortemente incentivato a pensare il più possibile 
+al presente con poca considerazione per le conseguenze tra 100 anni o anche 20 anni da ora. D'altra parte, se sei un 
+monarca, se stai pensando a prendere soldi dalle persone oggi, non ti preoccupi solo di quanto più denaro puoi prendere 
+oggi, ma ti preoccupi anche di quanto denaro i tuoi figli possono prendere in futuro, quindi stai pensando a lungo 
+termine. Un modo per spiegarlo è il confronto tra cacciatore e allevatore.
 
-Se stai camminando nella natura e incontri animali selvatici, li ucciderai tutti e mangerai quanti più puoi. Ucciderai quanti
-animali puoi e ne mangerai quanti più puoi. Non hai alcun incentivo a tenere in vita un animale perché anche se sei sazio, lo ucciderai
-comunque e ne mangerai solo metà, ma è meglio di niente perché butterai via metà dell'animale perché non lo rivedrai mai più,
-quindi metà dell'animale è meglio che non mangiare affatto.
+Se stai camminando nella natura e incontri animali selvatici, li ucciderai tutti e mangerai quanti più puoi. Ucciderai 
+quanti animali puoi e ne mangerai quanti più puoi. Non hai alcun incentivo a tenere in vita un animale perché anche se sei
+sazio, lo ucciderai comunque e ne mangerai solo metà, ma è meglio di niente perché butterai via metà dell'animale perché 
+non lo rivedrai mai più, quindi metà dell'animale è meglio che non mangiare affatto.
 
-D'altra parte, se sei un contadino, se sei un pastore e hai un gregge di animali e lo tieni con te e te ne prendi cura, ora sarai
-molto meno incline a macellare i tuoi animali e a mangiarli, perché se non mangi quell'animale oggi, ci sarà domani e quindi
-gestirai il tuo gregge molto bene e lo gestirai con una visione per il futuro. Non si tratta solo di avere, se hai un gregge di
-100 pecore, potresti macellarle tutte subito, ma pensi al futuro e quindi continui a
-prendertene cura e macelli solo ciò di cui hai bisogno e più a lungo le tieni in vita, più crescono, più carne hanno. In realtà,
-il modello è il modello della proprietà contro la proprietà comune o contro le cose che non sono possedute. Un leader democratico
-è essenzialmente qualcuno che è entrato nella fattoria di qualcun altro e può cacciare quanto vuole.
-é al comando, è il lupo al comando delle galline e puo prendere quante più galline vuole, ma solo per un breve periodo di tempo. Non rimarranno lì
-a lungo, ma saranno lì per un periodo molto breve e avrà l'incentivo a prenderne il più possibile.
+D'altra parte, se sei un contadino, se sei un pastore e hai un gregge di animali e lo tieni con te e te ne prendi cura, 
+ora sarai molto meno incline a macellare i tuoi animali e a mangiarli, perché se non mangi quell'animale oggi, ci sarà 
+domani e quindi gestirai il tuo gregge molto bene e lo gestirai con una visione per il futuro. Non si tratta solo di 
+avere, se hai un gregge di 100 pecore, potresti macellarle tutte subito, ma pensi al futuro e quindi continui a
+prendertene cura e macelli solo ciò di cui hai bisogno e più a lungo le tieni in vita, più crescono, più carne hanno.
+In realtà, il modello è il modello della proprietà contro la proprietà comune o contro le cose che non sono possedute. Un 
+leader democratico è essenzialmente qualcuno che è entrato nella fattoria di qualcun altro e può cacciare quanto vuole.
+é al comando, è il lupo al comando delle galline e puo prendere quante più galline vuole, ma solo per un breve periodo di 
+tempo. Non rimarranno lì a lungo, ma saranno lì per un periodo molto breve e avrà l'incentivo a prenderne il più possibile.
 
-È come il cacciatore nel senso del cacciatore che si imbatte in animali selvatici. Ciò che non caccia in questo momento o ciò che non prende dalla tua
-fattoria oggi non sarà mai suo.  Una volta che esce dall'ufficio, non potrà mai tornare alla tua fattoria e prendere i tuoi
-animali.
-Hanno l'incentivo a massimizzare la quantità che rubano oggi, ed è  esattamente ciò
-che sta accadendo, penso, nei paesi democratici, in cui si assiste a un'enorme quantità di corruzione perché le persone al vertice
-sono sostituibili. "Sono precarie". Sono qui oggi, sono via la prossima settimana. Hanno un forte incentivo a rubare e non hanno
-l'incentivo a provvedere per il futuro e non hanno il tipo di legittimità che sarebbe necessaria per imporre forti e rigorose
-salvaguardie contro l'effettiva espropriazione del futuro attraverso decisioni con alta preferenza temporale.
+È come il cacciatore nel senso del cacciatore che si imbatte in animali selvatici. Ciò che non caccia in questo momento o 
+ciò che non prende dalla tuafattoria oggi non sarà mai suo.  Una volta che esce dall'ufficio, non potrà mai tornare alla 
+tua fattoria e prendere i tuoi animali.
+Hanno l'incentivo a massimizzare la quantità che rubano oggi, ed è  esattamente ciò che sta accadendo, penso, nei paesi 
+democratici, in cui si assiste a un'enorme quantità di corruzione perché le persone al vertice sono sostituibili. "Sono 
+precarie". Sono qui oggi, sono via la prossima settimana. Hanno un forte incentivo a rubare e non hanno
+l'incentivo a provvedere per il futuro e non hanno il tipo di legittimità che sarebbe necessaria per imporre forti e
+rigorose salvaguardie contro l'effettiva espropriazione del futuro attraverso decisioni con alta preferenza temporale.
 
-Questo è davvero, penso, il primo e più convincente argomento a favore delle monarchie. È una questione di preferenza temporale e orizzonte temporale.
-Il secondo argomento a favore delle democrazie  ha a che fare con la sicurezza della proprietà. Nella monarchia tutto nel regno sia, in ultima
-analisi, per il re se lo desidera e questo significa che ti lasceranno in pace. Avranno molte
+Questo è davvero, penso, il primo e più convincente argomento a favore delle monarchie. È una questione di preferenza 
+temporale e orizzonte temporale.
+Il secondo argomento a favore delle democrazie  ha a che fare con la sicurezza della proprietà. Nella monarchia tutto nel 
+regno sia, in ultima analisi, per il re se lo desidera e questo significa che ti lasceranno in pace. Avranno molte
 proprietà e molte cose che possiedono, ma hanno cose migliori da fare che espropriare la tua proprietà.
 Hanno le loro cose e, le loro cose sono migliori delle tue e avranno sempre le cose più belle, quindi non
-hanno bisogno di andare a disturbare le persone comuni. Per te, come comune, questo è un affare molto migliore che avere un governo
-democratico che suppostamente è lì per rappresentarti, perché il governo democratico troverà sempre una scusa per trovare un modo
-per espropriarti, per portarti via le tue risorse perché sono interessati al breve termine.
+hanno bisogno di andare a disturbare le persone comuni. Per te, come comune, questo è un affare molto migliore che avere 
+un governo democratico che suppostamente è lì per rappresentarti, perché il governo democratico troverà sempre una scusa 
+per trovare un modo per espropriarti, per portarti via le tue risorse perché sono interessati al breve termine.
 
 Quindi, le democrazie avranno tassazione più elevata e avranno un'inflazione più alta e questo sarebbe interessante da
 osservare. Sono sicuro che qualcuno deve aver fatto delle ricerche su questo, anche se sono certo che non sarebbe
-molto popolare, ma sono al 100% certo che troveresti un tasso di inflazione più basso nelle monarchie, qualunque sia il modo in cui lo misuri.
-Conosco diversi esempi. 
-Ogni volta che pensi all'iperinflazione, è sempre una repubblica, è sempre una democrazia, è sempre una dittatura, non è mai una monarchia e
-penso che sia per questo che quando fanno il test, in realtà, quando fai gli studi, testeranno per la democrazia e raggrupperanno
-le monarchie e le dittature insieme e questo è davvero il modo in cui coprono fondamentalmente la monarchia.
+molto popolare, ma sono al 100% certo che troveresti un tasso di inflazione più basso nelle monarchie, qualunque sia il 
+modo in cui lo misuri. Conosco diversi esempi. Ogni volta che pensi all'iperinflazione, è sempre una repubblica, è sempre 
+una democrazia, è sempre una dittatura, non è mai una monarchia e penso che sia per questo che quando fanno il test, in 
+realtà, quando fai gli studi, testeranno per la democrazia e raggrupperanno le monarchie e le dittature insieme e questo è 
+davvero il modo in cui coprono fondamentalmente la monarchia.
 
-Contano la monarchia come se fosse la stessa cosa della dittatura e anche se i dittatori si definiscono tutti democratici e non si definiscono
-monarchici. Per scopi di ricerca al fine di far sembrare la democrazia buona e la monarchia cattiva, contiamo i monarchi ed i
-dittatori come monarchi. Ma i dittatori sono come i democratici, sono la stessa cosa. Sono solo scrocconi con alta preferenza temporale al potere per pochi anni che cercano di rubare quanto più possono rapidamente. 
+Contano la monarchia come se fosse la stessa cosa della dittatura e anche se i dittatori si definiscono tutti democratici 
+e non si definiscono monarchici. Per scopi di ricerca al fine di far sembrare la democrazia buona e la monarchia cattiva,
+contiamo i monarchi ed i dittatori come monarchi. Ma i dittatori sono come i democratici, sono la stessa cosa. Sono solo 
+scrocconi con alta preferenza temporale al potere per pochi anni che cercano di rubare quanto più possono rapidamente. 
 I monarchi sono diversi, quindi se esaminassi i vari monarchi troveresti una relazione molto
-forte  che evidenzia il legame le monarchie ed i loro tassi di infazione. In particolare, ritengo ci sia una relazione negativa.
-Quindi la sicurezza della proprietà, nella mia mente, è un aspetto enormemente importante della società e ne abbiamo
-discusso prima nei corsi e ti esorto a rivedere parte del materiale in economia 11.
+forte  che evidenzia il legame le monarchie ed i loro tassi di infazione. In particolare, ritengo ci sia una relazione 
+negativa. Quindi la sicurezza della proprietà, nella mia mente, è un aspetto enormemente importante della società e ne abbiamo discusso prima nei corsi e ti esorto a rivedere parte del materiale in economia 11.
 
- Essenzialmente, la sicurezza dei diritti di
-proprietà è ciò che consente alle persone di investire nel futuro, è ciò che consente alle persone di iniziare a ridurre la loro
-preferenza temporale. Se la tua terra sarà tua e i tuoi figli la avranno, allora puoi investire nel futuro e iniziare ad
-accumulare capitale e pensare al futuro, ma quando la proprietà non è sicura, hai meno incentivo a pensare al futuro e agisci
-verso il breve termine e questo porta davvero alla rovina e lo vedi in tutti i paesi in cui si verifica l'iperinflazione, vedi
-come cambia le persone costringendole a passare dal pensare a piani a lungo termine al pensare alla sopravvivenza giorno per
-giorno ed è assolutamente devastante vedere accadere tutto ciò, come sta accadendo in Libano oggi. Quindi la sicurezza della
-proprietà e della ricchezza è il secondo argomento che direi,
+Essenzialmente, la sicurezza dei diritti di proprietà è ciò che consente alle persone di investire nel futuro, è ciò che 
+consente alle persone di iniziare a ridurre la loro preferenza temporale. Se la tua terra sarà tua e i tuoi figli la 
+avranno, allora puoi investire nel futuro e iniziare ad accumulare capitale e pensare al futuro, ma quando la proprietà 
+non è sicura, hai meno incentivo a pensare al futuro e agisci verso il breve termine e questo porta davvero alla rovina e 
+lo vedi in tutti i paesi in cui si verifica l'iperinflazione, vedi come cambia le persone costringendole a passare dal 
+pensare a piani a lungo termine al pensare alla sopravvivenza giorno per giorno ed è assolutamente devastante vedere 
+accadere tutto ciò, come sta accadendo in Libano oggi. Quindi la sicurezza della proprietà e della ricchezza è il secondo 
+argomento che direi,
 
-Il terzo ha a che fare con la guerra. Simile all'analisi sulla
-preferenza temporale è l'analisi sulla guerra e l'analisi della sicurezza della proprietà. I re possedevano il paese in un certo
-senso e dovevano essere molto attenti a essere al comando perché non c'erano ripensamenti e non potevano semplicemente lasciare
-l'ufficio, dovevano sopportare le conseguenze delle loro decisioni per sempre. Se conduci una guerra che ti lascia in bancarotta
-poi sei meno in grado di difenderti, e  qualche altro nemico potrebbe entrare e distruggerti. Al contrario un leader democratico è
- molto più propenso a prendere rischi. Se sei un leader con alta preferenza temporale, hai maggiori probabilità ad impegnarti in avventure militari stupide perché
-sei al potere solo per pochi anni e hai molti soldi, tuttavia i re tendono ad evitare Tuttavia, i re tendono a evitare questo tipo di comportamenti,
- perché i monarchi che si comportano in questo modo vengono solitamente sconfitti e sostituiti da re più responsabili, che non si impegnano in tali avventure.
- Di conseguenza, c'è un incentivo maggiore a essere responsabili nei confronti del proprio paese, del proprio esercito e delle proprie finanze in relazione alla guerra.
+Il terzo ha a che fare con la guerra. Simile all'analisi sulla preferenza temporale è l'analisi sulla guerra e l'analisi della 
+sicurezza della proprietà. I re possedevano il paese in un certo senso e dovevano essere molto attenti a essere al comando perché 
+non c'erano ripensamenti e non potevano semplicemente lasciare l'ufficio, dovevano sopportare le conseguenze delle loro decisioni 
+per sempre. Se conduci una guerra che ti lascia in bancarotta poi sei meno in grado di difenderti, e  qualche altro nemico potrebbe 
+entrare e distruggerti. Al contrario un leader democratico è molto più propenso a prendere rischi. Se sei un leader con alta 
+preferenza temporale, hai maggiori probabilità ad impegnarti in  avventure militari stupide perché sei al potere solo per pochi 
+anni e hai molti soldi, tuttavia i re tendono ad evitare questo tipo di comportamenti, perché i monarchi che si comportano in 
+questo modo vengono solitamente sconfitti e sostituiti da re più responsabili, che non si impegnano in tali avventure.
+Di conseguenza, c'è un incentivo maggiore a essere responsabili nei confronti del proprio paese, del proprio esercito e delle 
+proprie finanze in relazione alla guerra.
 
-Credo che, se si esamina il record di guerra delle monarchie nel diciannovesimo e ventesimo secolo,
-si possa sostenere questa tesi. Naturalmente, esiste anche l'argomento contrario, secondo cui le democrazie non combattono tra loro,
-ma questo tema è trattato in modo più approfondito nel libro di Hoppe. In esso, si sostiene che non si tratta di democrazie diverse,
-ma piuttosto di stati vassalli degli Stati Uniti che non si scontrano tra loro. Infine, vorrei sottolineare che, in termini di selezione,
-la questione politica assicura che i politici che otteniamo siano persone che sono arrivate al potere con mezzi discutibil
+Credo che, se si esamina il record di guerra delle monarchie nel diciannovesimo e ventesimo secolo, si possa sostenere questa tesi.
+Naturalmente, esiste anche l'argomento contrario, secondo cui le democrazie non combattono tra loro,
+ma questo tema è trattato in modo più approfondito nel libro di Hoppe. In esso, si sostiene che non si tratta di democrazie 
+diverse, ma piuttosto di stati vassalli degli Stati Uniti che non si scontrano tra loro. Infine, vorrei sottolineare che, in 
+termini di selezione, la questione politica assicura che i politici che otteniamo siano persone che sono arrivate al potere con 
+mezzi discutibili. È possibile essere un buon re; infatti, le evidenze suggeriscono che ci sono buone ragioni per ritenere che 
+avrai alcuni tratti ereditati dai tuoi genitori e dai tuoi antenati, che devono aver fatto qualcosa di giusto per diventare re. 
+Quindi, se anche tu stai diventando re, è probabile che tu nasca con alcuni buoni tratti o il metodo di selezione è, nel peggiore 
+dei casi, casuale. Nel peggiore dei casi casuale potresti essere una brava persona o una cattiva persona e comunque finire al 
+comando come re. tuttavia con politica democratica, sei quasi certo di ottenere avvocati e truffatori al comando, perché è ciò che 
+funziona nella politica. Se devi vincere un concorso di popolarità, se menti, avrai un vantaggio enorme su tutti gli altri. Se sei 
+privo di principi, avrai un enorme vantaggio su chiunque sia principiale. Se sei disposto a compromettere i tuoi principi, tradire 
+le persone, fare affari e non avere coscienza riguardo alle cose, arriverai molto lontano in politica.  Ecco il tipo di persona che 
+la politica seleziona, mentre la monarchia, si potrebbe dire, seleziona qualcuno con una preferenza temporale molto più bassa e un 
+orizzonte temporale molto più lungo. 
 
-
-
-È possibile essere un buon re; infatti, le evidenze suggeriscono che ci sono buone ragioni per ritenere che avrai alcuni tratti
-ereditati dai tuoi genitori e dai tuoi antenati, che devono aver fatto qualcosa di giusto per diventare re.  Quindi, se anche tu stai
-diventando re, è probabile che tu nasca con alcuni buoni tratti o il metodo di
-selezione è, nel peggiore dei casi, casuale. Nel peggiore dei casi casuale potresti essere una brava persona o una cattiva persona e
-comunque finire al comando come re. tuttavia con politica democratica, sei quasi certo di ottenere avvocati e truffatori al
-comando, perché è ciò che funziona nella politica. Se devi vincere un concorso di popolarità, se menti, avrai un vantaggio enorme
-su tutti gli altri. Se sei privo di principi, avrai un enorme vantaggio su chiunque sia principiale. Se sei disposto a
-compromettere i tuoi principi, tradire le persone, fare affari e non avere coscienza riguardo alle cose, arriverai molto lontano
-in politica.  Ecco il tipo di persona che la politica seleziona, mentre la monarchia, si potrebbe dire, seleziona qualcuno con una
-preferenza temporale molto più bassa e un orizzonte temporale molto più lungo.
-
-
-Il quinto punto, che penso sia molto importante e che Hopper sottolinea, riguarda la legittimità del governo. La democrazia dà
-alle persone l'impressione che il governo sia lì per aiutarci, e che  il governo è responsabile per
-noi,  il governo è come otteniamo cose belle. E questo è estremamente pericoloso, perché il governo non può aiutarti. Il governo
-non può; nessun governo al mondo può vivere la tua vita per te. Devi vivere la tua vita e, non importa quante caramelle e soldi ti
-lancino, se non prendi in mano la tua vita per darti ciò che vuoi e renderti felice, nessun governo al mondo ti renderà felice. E
-penso che sia una delle conseguenze più orribili della democrazia moderna, che le persone pensino che, poiché il governo ha una
-stampante illimitata, ha denaro moderno e può fare ciò che vuoi. Le persone pensano che il governo sia responsabile per loro e che
-il governo debba provvedere a loro. E questo, penso, è una credenza debilitante, perché ti fa pensare che il mondo là fuori ti
-debba qualcosa e che hai bisogno che il mondo faccia delle cose per te affinché la tua vita funzioni. E se hai questo tipo di
-mentalità nella tua vita... buona fortuna. Devi creare la tua vita, devi prendere in mano la tua
-vita. E sotto la monarchia, c'è una rappresentazione molto più onesta della relazione tra governo e individuo, perché questa è la
-realtà. La realtà è che, loro hanno il sangue blu e tu hai il sangue rosso, e se decidono che devi morire, puoi morire. Questo
-è vero in una democrazia, è vero in una monarchia, è vero ovunque. Lo vediamo; non c'è modo di compromettere il governo. È vero
-ovunque ci sia un governo, insomma; è una funzione vera del governo. Questo è ciò che  realmente il governo è: l'idea che
-alcune persone abbiano il diritto di imporre la loro volontà su altre, alcune persone di far rispettare la loro volontà su altre e che  alcune persone
-hanno il diritto di dire ad altre cosa fare. E questo è ciò a cui alla fine si riduce. E se devi
+Il quinto punto, che penso sia molto importante e che Hopper sottolinea, riguarda la legittimità del governo. La democrazia dà alle 
+persone l'impressione che il governo sia lì per aiutarci, e che  il governo è responsabile per noi,  il governo è come otteniamo cose belle. E questo è estremamente pericoloso, perché il governo non può aiutarti. Il governo non può; nessun governo al mondo può 
+vivere la tua vita per te. Devi vivere la tua vita e, non importa quante caramelle e soldi ti lancino, se non prendi in mano la tua 
+vita per darti ciò che vuoi e renderti felice, nessun governo al mondo ti renderà felice. E penso che sia una delle conseguenze più 
+orribili della democrazia moderna, che le persone pensino che, poiché il governo ha una stampante illimitata, ha denaro moderno e 
+può fare ciò che vuoi. Le persone pensano che il governo sia responsabile per loro e che il governo debba provvedere a loro. E 
+questo, penso, è una credenza debilitante, perché ti fa pensare che il mondo là fuori ti debba qualcosa e che hai bisogno che il 
+mondo faccia delle cose per te affinché la tua vita funzioni. E se hai questo tipo di mentalità nella tua vita... buona fortuna. 
+Devi creare la tua vita, devi prendere in mano la tua vita. E sotto la monarchia, c'è una rappresentazione molto più onesta della 
+relazione tra governo e individuo, perché questa è la realtà. La realtà è che, loro hanno il sangue blu e tu hai il sangue rosso,
+e se decidono che devi morire, puoi morire. 
+Questo è vero in una democrazia, è vero in una monarchia, è vero ovunque. Lo vediamo; non c'è modo di compromettere il governo. 
+È vero ovunque ci sia un governo, insomma; è una funzione vera del governo. Questo è ciò che  realmente il governo è: l'idea che
+alcune persone abbiano il diritto di imporre la loro volontà su altre, alcune persone di far rispettare la loro volontà su altre e 
+che  alcune persone hanno il diritto di dire ad altre cosa fare. E questo è ciò a cui alla fine si riduce. E se devi
 avere qualcosa del genere, preferirei che fosse pubblicizzato onestamente, che sì, questo tizio ha il sangue blu e tu hai il
 sangue rosso, ed è per questo che lo ascolti. E questo è onesto, mentre con la democrazia tutti hanno l'illusione che le persone
 al potere lavorino per me, quando in realtà lavorano per se stesse. E questo porta a enormi malintesi e enormi conseguenze
@@ -249,8 +248,8 @@ della monarchia. Nelle democrazie, in particolare, i gruppi di lobby e i gruppi 
 elezioni perché possono sostenere diversi candidati. E poi il candidato entra in carica e deve rendere conto a quelle persone;
 deve loro qualcosa perché li ha fatti eleggere e vuole tenerli felici in modo da poterli far rieleggere.
 
- Così, saranno legati a tutti i tipi di interessi diversi. E quindi, ogni quattro anni o ogni cinque anni, o quel che è, ottieni un nuovo tizio che
-è il leader dell'intero paese e che è lì per aiutarci tutti a raggiungere tutti i nostri obiettivi e a
+Così, saranno legati a tutti i tipi di interessi diversi. E quindi, ogni quattro anni o ogni cinque anni, o quel che è, ottieni un 
+nuovo tizio che è il leader dell'intero paese e che è lì per aiutarci tutti a raggiungere tutti i nostri obiettivi e a
 farci avere tutte le belle cose che la politica ci promette. Ma è anche, soprattutto, legato a questi piccoli gruppi minoritari, i
 coltivatori di mais e l'industria dell'acciaio e specifici gruppi di lobby che avranno influenza esterna. E quindi sì, è lì per
 te, ma si preoccupa più dei coltivatori di mais che di te, e quindi permetterà che il sussidio per il mais continui, anche se è
@@ -263,8 +262,7 @@ sono un programma per la produzione di mais, dove spostiamo le persone in quella
 mais. La sensazione che si ha riguardo a quanto il mais sia pervasivo negli Stati Uniti è quasi come se il paese esistesse per
 mangiare mais, piuttosto che il mais esistere per servire il paese.
 
-Credo che ci sia un altro articolo di cui dovrei parlare: Monarchy and War.
-Se dovessimo considerare alcuni di questi argomenti,
+Credo che ci sia un altro articolo di cui dovrei parlare: Monarchy and War. Se dovessimo considerare alcuni di questi argomenti,
 sono anche influenzati da questo autore, il cui nome è Erik Ritter von Kuehnelt-Leddihn. Avrò tutte queste letture nelle note del
 podcast. Questo autore ha un saggio sulla monarchia e la guerra, e in esso sostiene l'argomento a favore della monarchia.  Dice
 che l'ascesa della civiltà occidentale è avvenuta sotto la monarchia, ed è difficile discutere con questo; si potrebbe dire che la
