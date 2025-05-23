@@ -434,10 +434,12 @@ della propaganda progressista per questa storia.
 
 Qualcun altro vuole aggiungere qualcosa?
 
-(UN RAGAZZO CHIEDE)"
+(UN RAGAZZO INTERVIENE)
 
-Beh, qui sembra che Bitcoin diventi davvero interessante, giusto? Giusto.  Proprio come un animale domestico, probabilmente gli
-Stati Uniti non torneranno a una monarchia, ma sarà interessante vedere cosa può fare Bitcoin (FINE DOMANDA). 
+Beh, qui sembra che Bitcoin diventi davvero interessante, giusto?.  Probabilmente gli
+Stati Uniti non torneranno a una monarchia, ma sarà interessante vedere cosa può fare Bitcoin 
+
+(FINE ITNTERVENTO). 
 
 Sì, intendo dire che tutta questa discussione potrebbe essere un po' un punto inutile, perché se Bitcoin ci porta all'anarchia, allora chi ha bisogno
 di una monarchia, comunque? Ma fino ad allora, suppongo che vivere sotto una monarchia possa essere consigliabile. Ma,
