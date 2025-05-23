@@ -1,23 +1,12 @@
 
-Ciao, benvenuti al seminario di Saifedean.com del 20 agosto 2020. Questo è il primo seminario che trasmetteremo come podcast, come
-ho già accennato in precedenza. Quindi, questo non sarà disponibile solo per i membri di Saifedean.com, ma sarà disponibile
-pubblicamente nel podcast. Questi seminari, per coloro che si uniscono a noi per la prima volta, si tengono settimanalmente e sono
-aperti a chiunque stia seguendo uno dei corsi su Saifedean.com e sono pensati come un luogo dove discutiamo il materiale dei
-corsi, così come l'economia di Bitcoin,le questioni mondiali, le domande economiche in generale, l'economia della scuola austriaca
-in particolare. Quindi c'è un ampio ventaglio di argomenti che discutiamo ogni settimana, ma la discussione va avanti da 14
-settimane ormai e ogni volta penso che sia stata piuttosto interessante e utile perché riceviamo molte prospettive molto
-interessanti su diverse questioni da persone di tutto il mondo che si uniscono a noi e penso che l'esperienza di poter studiare il
-materiale economico austriaco e poi avere un seminario con un gruppo di persone che lo stanno studiando allo stesso tempo, in un
-certo senso, replica l'esperienza universitaria grazie a tutte le incredibili possibilità di internet. Siamo in grado di farlo con
-un impegno finanziario molto minore e un impegno di tempo molto minore, quindi non è necessario andare all'università e impegnarsi
-per tre generazioni per discutere di economia. Puoi semplicemente farlo un'ora a settimana collegandoti a una chiamata Zoom.
+Pubblicità
 
-Quindi penso che renderli disponibili pubblicamente dovrebbe probabilmente, si spera, risultare interessante per le persone che
+"Quindi per renderli disponibili pubblicamente dovrebbe probabilmente, si spera, risultare interessante per le persone che
 non stanno seguendo corsi perché penso che ci sia molto nelle discussioni che è rilevante per tutti i tipi di altri argomenti e in
 particolare se sei interessato a Bitcoin o all'economia austriaca, penso che troverai questa discussione interessante. Quindi
 spero che ti piaccia e, naturalmente, se ti piace, non esitare a iscriverti ai corsi su saifedean.com.  Quindi, di solito,
 ricevo domande via email da persone che stanno seguendo i corsi e durante il seminario affronterò alcune delle
-domande.Inizialmente  discuterò io e poi avremo una discussione più aperta in cui tutti possono partecipare. Quindi, per la
+domande. Inizialmente  discuterò io e poi avremo una discussione più aperta in cui tutti possono partecipare. Quindi, per la
 discussione di oggi, la prima domanda che volevo trattare è una domanda sulla monarchia. Specificamente, questo è qualcosa di cui
 abbiamo discusso in alcuni dei corsi e nei seminari precedenti e in una settimana precedente abbiamo discusso l'ascesa della Gran
 Bretagna e come la Gran Bretagna sia diventata un paese ricco e abbiamo menzionato la monarchia, ma oggi penso di voler cogliere
@@ -42,28 +31,28 @@ confrontarsi con il fatto che la democrazia non è necessariamente la migliore i
 Prima di avere l'onestà di dirti, la democrazia è semplicemente un cattivo sistema politico. Ho avuto questa fase in cui pensavo che il sistema politico stesso non
 importasse perché vedi esempi di democrazie che fanno cose cattive e vedi esempi di monarchie che fanno cose buone.
 
-C'è un po' di contraddizione in questo ed il modo per risolvere  è ossrvarla  dal punto dell' economista. I0l modo in cui la vedo è che non importa come
+C'è un po' di contraddizione in questo ed il modo per risolvere  è ossrvarla  dal punto dell' economista. Il modo in cui la vedo è che non importa come
 scegli il sistema politico, ciò che conta sono le politiche economiche adottate dalle persone al potere, indipendentemente dal
 sistema politico che seguono. Quindi, se hai una democrazia o una dittatura o una monarchia o una teocrazia o un sistema
 aristocratico o qualsiasi tipo di sistema politico, se le persone al comando di quel sistema decidono semplicemente di lasciare
 che tutti commercino e comprino e vendano cose come vogliono senza imporre restrizioni su di loro, allora va bene. Allora le cose
-funzionano bene. In particolare, si tratta davvero di libertà economica. Penso che la cosa più importante probabilmente sia la
-libertà economica perché ci sono altre libertà e contano. Ma in realtà, penso che se le persone sono in grado di prendersi cura
-della propria libertà economica, se le persone sono in grado di gestire i propri affari economici senza un intervento
-significativo da parte del governo, allora, nella mia mente, tutto il resto diventa secondario, diventa un dettaglio irrilevante.
-Tutto il resto diventa non davvero così importante rispetto al fatto che, in realtà, la libertà economica è tutto ciò di cui
+funzionano bene. In particolare, si tratta di libertà economica. La cosa più importante probabilmente è la
+libertà economica perché ci sono altre libertà e contano. Se le persone sono in grado di prendersi cura
+della propria libertà economica, se sono in grado di gestire i propri affari economici senza un intervento
+significativo da parte del governo, allora, tutto il resto diventa secondario, diventa un dettaglio irrilevante.
+Tutto il resto diventa non davvero così importante rispetto al fatto che, la libertà economica è tutto ciò di cui
 chiunque ha bisogno per poter garantire la propria sopravvivenza. Se non hai libertà economica, allora non sei in grado di
 garantire la tua sopravvivenza ed è colpa degli altri se non sei in grado di garantirla e poi le cose vanno male. Penso che ci sia
 sicuramente una verità in questo: qualunque sistema politico venga scelto, se le persone al potere finiscono per essere al comando
-e gestire tutti i tipi di attività economiche, le cose andranno male. Non importa come vengono scelti. Ma penso che dopo aver
+e gestire tutti i tipi di attività economiche, le cose andranno male. Non importa come vengono scelti. Dopo aver
 letto "Democrazia, il Dio che fallì" di Hans Hermann Hoppe, dopo aver letto quel libro, non puoi fare a meno di notare che ci sono
-certe cose intrinseche alla democrazia che portano a cose terribili e mentre ci sono certe cose intrinseche alla monarchia che
-sono migliori. Penso che non sia una cosa popolare da dire, ma è molto difficile fare il caso contro di essa.
+certe cose intrinseche nella democrazia che portano a cose terribili e ci sono certe cose intrinseche alla monarchia che
+sono migliori. Non credo sia una cosa popolare da dire, ma è molto difficile fare il caso contro di essa.
 
- Penso che sia comprensibile che non abbastanza persone lo stiano dicendo pubblicamente, ma penso che la quantità di prove là fuori sia
+E' comprensibile che non abbastanza persone lo stiano dicendo pubblicamente, ma penso che la quantità di prove "là fuori" sia
 estremamente convincente. Conosco particolarmente bene la parte del mondo da cui provengo, il Medio Oriente, è
 assolutamente sorprendente quanto siano diverse le cose in paesi molto, molto simili che finiscono per essere molto diversi l'uno
-dall'altro solo a causa dei sistemi politici. é innegabilmente i paesi che sono rimasti con le monarchie stanno facendo
+dall'altro solo a causa dei sistemi politici. E' innegabilmente i paesi che sono rimasti con le monarchie stanno facendo
 infinitamente meglio rispetto ai paesi che non lo sono in  ogni misura. Basti guardare al Nord Africa, il Marocco. 
 La cosa bella di fare questa analisi nell'anno 2020 è  che ci troviamo  esattamente 100 anni dopo la fine della Prima Guerra Mondiale e
 dopo il rimescolamento del Medio Oriente, dove tutti questi paesi hanno iniziato a prendere forma nella loro
@@ -72,34 +61,34 @@ sufficientemente lungo e poi il periodo di tempo perfetto. Per cento anni, sono 
 riesci a governare un paese pacificamente e farlo crescere e prosperare in cento anni, non puoi sfuggire alla conclusione che devi
 aver fatto qualcosa di giusto. Altrimenti, se hai avuto cento anni di sangue e omicidi e guerre e distruzione e povertà e miseria,
 è molto difficile sostenere che sia stata solo pura coincidenza.
-Penso che in tutto il mondo arabo si vedano questi esempi ripetutamente.
+Credo che in tutto il mondo arabo si vedano questi esempi ripetutamente.
 Il Marocco, per esempio, è stabile, pacifico e relativamente abbastanza prospero rispetto ad altri paesi
 nordafricani. Vedi la Libia, l'Algeria e l'Egitto hanno attraversato enormi quantità di turbolenze, insicurezze e guerre
-durante quel periodo. Naturalmente, questo non significa che il Marocco sia perfetto, ma penso che se guardi indietro agli ultimi
-100 anni, preferiresti vivere sotto la monarchia marocchina? oppure sotto i regimi repubblicani che hanno governato negli altri paesi
+durante quel periodo. Naturalmente, questo non significa che il Marocco sia perfetto, se guardi indietro agli ultimi
+100 anni, preferiresti vivere sotto la monarchia marocchina? Oppure sotto i regimi repubblicani che hanno governato negli altri paesi
 nordafricani? Non credo ci sia alcun dubbio, se dovessi valutare onestamente.
 
 La ragione per cui è difficile è che l'Egitto, per esempio, ha avuto una monarchia fino agli anni '50. Conosco abbastanza bene l'Egitto, sono cresciuto
 leggendo molto sull'Egitto da molti scrittori egiziani e guardando film egiziani. Ho famiglia lì e ho viaggiato lì, quindi conosco
 il paese abbastanza bene. Penso che ci sia un crescente riconoscimento ora che le persone si rendono conto che avevano qualcosa di
-buono sotto la monarchia. C'è stata una recente soap opera realizzata sulla monarchia, e ha avuto molta popolarità. Penso che se
+buono sotto la monarchia. C'è stata una recente soap opera realizzata sulla monarchia, e ha avuto molta popolarità. Credo che se
 guardi al Cairo negli anni '30, era una città incredibilmente bella, pulita e organizzata. Direi che in molti modi era molto
 meglio di come è ora. Naturalmente, oggi è una città molto più grande e più avanzata perché la tecnologia è avanzata enormemente
 negli ultimi 90 anni.  Tuttavia, penso che ci fosse un elemento di organizzazione e ordine che era presente all'epoca, che è quasi
 scomparso.
-Penso che tu possa vedere questo schema praticamente ovunque. Penso che anche l'Iraq sia lo stesso. L'Iraq ha avuto una
+Penso che tu possa vedere questo schema praticamente ovunque. Anche l'Iraq, lo stesso. L'Iraq ha avuto una
 monarchia per un po', e poi quando è passato sulla strada di una repubblica democratica rivoluzionaria, le cose sono andate
 deteriorandosi in modo orribile. Se confronti, la Siria è stata solo una monarchia. 
 
- La Siria e il Libano sono stati effettivamente una monarchia per soli pochi mesi, meno di un anno, quando il re hashemita Faisal è stato messo al comando di essi, ma poi se ne
-andò e prese il comando dell'Iraq. Se confronti la Siria e l'Iraq con la Giordania, che cento anni fa era un'area molto più
+La Siria e il Libano sono stati effettivamente una monarchia per soli pochi mesi, meno di un anno, quando il re hashemita Faisal è stato messo al comando di essi, 
+ma poi se ne andò e prese il comando dell'Iraq. Se confronti la Siria e l'Iraq con la Giordania, che cento anni fa era un'area molto più
 povera,  meno popolata e con molte meno risorse noterai che, guardando gli ultimi 100 anni, la situazione è diversa.
 Amman era una piccola cittadina, mentre Damasco e Baghdad erano città molto antiche e molto consolidate con un'enorme quantità di
 capitale umano e fisico. Aleppo, nel nord della Siria, era una delle città più ricche del mondo in quel periodo. Era una delle
 principali città dell'Impero Ottomano. Queste città erano molto più avanzate 100 anni fa, ma  nel corso di questi 100 anni,
 hanno attraversato un'enorme quantità di guerre, conflitti, distruzione e fallimenti governativi.
-Penso che se le confronti con la Giordania, che ha sostanzialmente vissuto una pace ininterrotta per quasi 100 anni, il contrasto è davvero sorprendente. Un altro esempio dal
-mondo arabo è lo Yemen e Amman, che sono due paesi simili. Amman è una monarchia ed è stata molto pacifica e continua a crescere e
+Se le confronti con la Giordania, che ha sostanzialmente vissuto una pace ininterrotta per quasi 100 anni, il contrasto è davvero sorprendente.
+Un altro esempio dal mondo arabo è lo Yemen e Amman, che sono due paesi simili. Amman è una monarchia ed è stata molto pacifica e continua a crescere e
 prosperare. Guardando anche i paesi del Golfo che sono monarchie, la differenza è piuttosto sorprendente.
 
 In tutto il mondo arabo,  le monarchie stanno facendo molto meglio delle repubbliche, e le repubbliche hanno quasi sempre
@@ -109,14 +98,13 @@ questi esempi e non vedere un modello  e leggendo Hans Hermann Hoppe si puo comp
 La migliore tesi a favore delle monarchie proviene dal libro di Hoppe, ed è per questo che penso sia
 la difesa più eloquente della monarchia, perché molti dei monarchici difendono la monarchia basandosi su motivi non
 molto rigorosi, cose come i diritti divini dei re e Dio vuole i re e così via, che possono essere convincenti per alcuni,
-se sei qui al seminario come me, sarai molto meglio persuaso da cose come "la preferenza temporale", ed è questo è il nocciolo
+ma se sei qui al seminario come me, sarai molto meglio persuaso da cose come "la preferenza temporale", ed è questo è il nocciolo
 dell'argomento di Hans Hermann Hoppe nel libro "Democrazia, il Dio che fallì".
 
-Nel libro scrive che la monarchia incoraggia i governanti
-ad avere una bassa preferenza temporale e a pensare al futuro ed al lungo termine, quindi è nel loro interesse migliorare la qualità
-della vita e il tenore di vita delle persone nel loro paese per il lungo periodo, perché vogliono lasciare ai loro figli una
-società prospera e funzionale da cui i figli possono governare e da cui possono estrarre tasse. Quindi, stanno giocando a un gioco
-molto lungo, hanno un orizzonte temporale molto ampio, e quando pensano a quanto denaro stanno per sottrarre a te, e diciamolo, è
+Nel libro scrive che la monarchia incoraggia i governanti ad avere una bassa preferenza temporale e a pensare al futuro
+ed al lungo termine, quindi è nel loro interesse migliorare la qualità della vita e il tenore di vita delle persone nel loro paese per il lungo periodo,
+perché vogliono lasciare ai loro figli una società prospera e funzionale da cui i figli possono governare e da cui possono estrarre tasse.
+Quindi, stanno giocando a un gioco molto lungo, hanno un orizzonte temporale molto ampio, e quando pensano a quanto denaro stanno per sottrarre a te, e diciamolo, è
 davvero quello per cui serve il governo, sia esso monarchia o democrazia, se stanno pensando a quanto denaro prenderanno da te, il
 loro calcolo è molto diverso rispetto a quello di un governo eletto democraticamente, perché il governo eletto democraticamente è
 insicuro.
@@ -128,13 +116,12 @@ solo quei tre, cinque o dieci anni in cui possono prendere risorse e garantire l
 poiché sono solo tre, quattro, cinque anni, sei fortemente incentivato a pensare il più possibile al presente con poca
 considerazione per le conseguenze tra 100 anni o anche 20 anni da ora. D'altra parte, se sei un monarca, se stai pensando a
 prendere soldi dalle persone oggi, non ti preoccupi solo di quanto più denaro puoi prendere oggi, ma ti preoccupi anche di quanto
-denaro i tuoi figli possono prendere in futuro, quindi stai pensando a lungo termine. Penso che la differenza sia che un modo di
-spiegarlo è come la caccia rispetto all'allevamento.
+denaro i tuoi figli possono prendere in futuro, quindi stai pensando a lungo termine. Un modo per spiegarlo è il confronto tra cacciatore e allevatore.
 
 Se stai camminando nella natura e incontri animali selvatici, li ucciderai tutti e mangerai quanti più puoi. Ucciderai quanti
 animali puoi e ne mangerai quanti più puoi. Non hai alcun incentivo a tenere in vita un animale perché anche se sei sazio, lo ucciderai
 comunque e ne mangerai solo metà, ma è meglio di niente perché butterai via metà dell'animale perché non lo rivedrai mai più,
- quindi metà dell'animale è meglio che non mangiare affatto.
+quindi metà dell'animale è meglio che non mangiare affatto.
 
 D'altra parte, se sei un contadino, se sei un pastore e hai un gregge di animali e lo tieni con te e te ne prendi cura, ora sarai
 molto meno incline a macellare i tuoi animali e a mangiarli, perché se non mangi quell'animale oggi, ci sarà domani e quindi
@@ -146,37 +133,36 @@ il modello è il modello della proprietà contro la proprietà comune o contro l
 é al comando, è il lupo al comando delle galline e puo prendere quante più galline vuole, ma solo per un breve periodo di tempo. Non rimarranno lì
 a lungo, ma saranno lì per un periodo molto breve e avrà l'incentivo a prenderne il più possibile.
 
- È come il cacciatore nel senso del cacciatore che si imbatte in animali selvatici. Ciò che non caccia in questo momento o ciò che non prende dalla tua
+È come il cacciatore nel senso del cacciatore che si imbatte in animali selvatici. Ciò che non caccia in questo momento o ciò che non prende dalla tua
 fattoria oggi non sarà mai suo.  Una volta che esce dall'ufficio, non potrà mai tornare alla tua fattoria e prendere i tuoi
 animali.
-
 Hanno l'incentivo a massimizzare la quantità che rubano oggi, ed è  esattamente ciò
 che sta accadendo, penso, nei paesi democratici, in cui si assiste a un'enorme quantità di corruzione perché le persone al vertice
 sono sostituibili. "Sono precarie". Sono qui oggi, sono via la prossima settimana. Hanno un forte incentivo a rubare e non hanno
 l'incentivo a provvedere per il futuro e non hanno il tipo di legittimità che sarebbe necessaria per imporre forti e rigorose
 salvaguardie contro l'effettiva espropriazione del futuro attraverso decisioni con alta preferenza temporale.
 
- Questo è davvero,penso, il primo e più convincente argomento a favore delle monarchie. È una questione di preferenza temporale e orizzonte temporale.
-Il secondo argomento a favore delle democrazie  ha a che fare con la sicurezza della proprietà. Penso che nella monarchia tutto nel regno sia, in ultima
+Questo è davvero, penso, il primo e più convincente argomento a favore delle monarchie. È una questione di preferenza temporale e orizzonte temporale.
+Il secondo argomento a favore delle democrazie  ha a che fare con la sicurezza della proprietà. Nella monarchia tutto nel regno sia, in ultima
 analisi, per il re se lo desidera e questo significa che ti lasceranno in pace. Avranno molte
 proprietà e molte cose che possiedono, ma hanno cose migliori da fare che espropriare la tua proprietà.
- Hanno le loro cose e le loro cose sono migliori delle tue e avranno sempre le cose più belle, quindi non
-hanno bisogno di andare a disturbare i comuni. Per te, come comune, questo è un affare molto migliore che avere un governo
+Hanno le loro cose e, le loro cose sono migliori delle tue e avranno sempre le cose più belle, quindi non
+hanno bisogno di andare a disturbare le persone comuni. Per te, come comune, questo è un affare molto migliore che avere un governo
 democratico che suppostamente è lì per rappresentarti, perché il governo democratico troverà sempre una scusa per trovare un modo
 per espropriarti, per portarti via le tue risorse perché sono interessati al breve termine.
 
 Quindi, le democrazie avranno tassazione più elevata e avranno un'inflazione più alta e questo sarebbe interessante da
 osservare. Sono sicuro che qualcuno deve aver fatto delle ricerche su questo, anche se sono certo che non sarebbe
 molto popolare, ma sono al 100% certo che troveresti un tasso di inflazione più basso nelle monarchie, qualunque sia il modo in cui lo misuri.
-Conosco diversi esempi. Ogni volta che
-pensi all'iperinflazione, è sempre una repubblica, è sempre una democrazia, è sempre una dittatura, non è mai una monarchia e
+Conosco diversi esempi. 
+Ogni volta che pensi all'iperinflazione, è sempre una repubblica, è sempre una democrazia, è sempre una dittatura, non è mai una monarchia e
 penso che sia per questo che quando fanno il test, in realtà, quando fai gli studi, testeranno per la democrazia e raggrupperanno
 le monarchie e le dittature insieme e questo è davvero il modo in cui coprono fondamentalmente la monarchia.
 
- Contano la monarchia come se fosse la stessa cosa della dittatura e anche se i dittatori si definiscono tutti democratici e non si definiscono
+Contano la monarchia come se fosse la stessa cosa della dittatura e anche se i dittatori si definiscono tutti democratici e non si definiscono
 monarchici. Per scopi di ricerca al fine di far sembrare la democrazia buona e la monarchia cattiva, contiamo i monarchi ed i
-dittatori come monarchi. Ma i dittatori sono come i democratici, sono la stessa cosa. Sono solo scrocconi con alta preferenza temporale al potere per pochi anni che cercano di
-rubare quanto più possono rapidamente. I monarchi sono diversi, quindi se esaminassi i vari monarchi troveresti una relazione molto
+dittatori come monarchi. Ma i dittatori sono come i democratici, sono la stessa cosa. Sono solo scrocconi con alta preferenza temporale al potere per pochi anni che cercano di rubare quanto più possono rapidamente. 
+I monarchi sono diversi, quindi se esaminassi i vari monarchi troveresti una relazione molto
 forte  che evidenzia il legame le monarchie ed i loro tassi di infazione. In particolare, ritengo ci sia una relazione negativa.
 Quindi la sicurezza della proprietà, nella mia mente, è un aspetto enormemente importante della società e ne abbiamo
 discusso prima nei corsi e ti esorto a rivedere parte del materiale in economia 11.
@@ -278,14 +264,14 @@ diventando democratiche prima. L'industrializzazione è avvenuta grazie a molte 
 bassa preferenza temporale, innovazione tecnologica e sviluppo del capitale, e così via.
 
 Ti esorto a leggere il saggio e vedere l'argomento a favore di esso. Quindi, tutti questi sono davvero, penso, argomenti piuttosto
-convincenti sul perché preferirei vivere sotto una monarchia piuttosto che sotto una democrazia. E penso che gli esempi nel mondo
+convincenti sul perché preferirei vivere sotto una monarchia piuttosto che sotto una democrazia. Credo che gli esempi nel mondo
 siano anche piuttosto numerosi. L'America Latina, ad esempio, è un buon esempio: i paesi dell'America Latina, quando erano sotto
 monarchie si potrebbe dire che le cose andavano molto meglio in molti modi, e penso che, dalla rimozione delle monarchie, questi
 paesi abbiano avuto un numero infinito di guerre civili, iperinflazioni e ogni tipo di problemi diversi. È davvero interessante,
-perché penso che non si vedano così tanti di questi problemi nelle monarchie. Quindi, guardi a Spagna e Argentina, per esempio.
+perché credo che non si vedano così tanti di questi problemi nelle monarchie. Quindi, guardi a Spagna e Argentina, per esempio.
 
 L'Argentina ha avuto negli ultimi 60-70 anni un'esperienza che sembra essere un manifesto del disfunzionamento keynesiano; la
-Spagna no. E anche se l'Argentina era più ricca della Spagna circa cento anni fa, penso che gli argomenti a favore di questo siano
+Spagna no. E anche se l'Argentina era più ricca della Spagna circa cento anni fa, credo che gli argomenti a favore di questo siano
 piuttosto convincenti. Ma, naturalmente, è comprensibile che molti possano non essere d'accordo con me. Qualcuno ha qualcosa da
 aggiungere?
 
@@ -298,7 +284,7 @@ Non dirò altro, tranne che faccio questa osservazione.
 
 (FINE DOMANDA DEL RAGAZZO)
 
-Sì, penso che, onestamente, tornando alla questione della mentalità da vittima, sia l'unico modo coerente per essere statalisti:
+Sì, onestamente, tornando alla questione della mentalità da vittima, sia l'unico modo coerente per essere statalisti:
 se pensi che il governo debba fornire tutto. In altre parole, se pensi che il governo sia lì per fornire sicurezza, allora, beh,
 se possono fare sicurezza, perché non fare anche il denaro? Perché non fare anche pony rosa per ogni ragazza? E perché non fare
 anche alloggi? E perché non fare tutto? Se possono fare qualcosa, allora possono sostanzialmente fare tutto.
@@ -324,7 +310,7 @@ risolto?
 (FINE DELLA DOMANDA DEL RAGAZZO)
 
 
-Sì, è una grande domanda e penso che alla fine le persone dovranno trovare la soluzione per se stesse. In molti casi, praticamente
+Sì, è una grande domanda. Le persone dovranno trovare la soluzione per se stesse. In molti casi, praticamente
 ovunque nel mondo, c'è un pretendente al trono, quindi c'è qualcuno là fuori che vuole essere il re di Russia e c'è qualcuno là
 fuori che crede di dover essere il re di Francia.  Infatti, il re di Francia è su Twitter; ho visto il suo profilo ed è
 sorprendente. Lo guardi e lo confronti con l'attuale gruppo di attori che hanno al comando della Francia, e guardi questo tizio e
@@ -334,7 +320,7 @@ vero adulto al comando di un paese.
 Penso che in ogni paese ci sarà probabilmente ancora qualche residuo di realisti che hanno ancora lealtà verso il re, quindi forse
 questo diventa il nucleo che potrebbe diventare un movimento popolare. Forse ci saranno partiti democratici monarchici che cercano
 di rovesciare la costituzione e trasformarla in una monarchia, usando gli strumenti della democrazia contro di essa, bruciando la
-democrazia con il suo stesso fuoco. Tuttavia, penso che sia difficile vedere come questo possa avere successo. È una domanda
+democrazia con il suo stesso fuoco. Tuttavia, credo che sia difficile vedere come questo possa avere successo. È una domanda
 difficile e discutere se sia meglio in linea di principio non mi dà particolari intuizioni su come realizzarlo.
 
 Penso che la soluzione individuale sia trovare un re, un posto che abbia un re, e andare a vivere lì. E certo, potrebbe non
@@ -346,7 +332,7 @@ puoi prendere una pausa, puoi iniziare a riqualificarti, andare a fare un altro 
 tuo lavoro, vieni ucciso, e basta. E tutta la tua famiglia viene uccisa e il tuo intero paese viene preso. I rischi associati a
 quel lavoro sono piuttosto brutti.
 
-Quindi, penso che la politica democratica sia qualcosa su cui possiamo sederci e lamentarci del fatto che non sia giusta, ma penso
+Quindi, penso che la politica democratica sia qualcosa su cui possiamo sederci e lamentarci del fatto che non sia giusta,
 che la politica da adulti sia semplicemente questa realtà. E potresti usare il tuo tempo in modo molto più costruttivo facendo
 cose che sono migliori per te e per i tuoi figli, piuttosto che semplicemente lamentarti del perché loro possano essere re e tu
 no. È una questione difficile, ma sì, penso che i movimenti monarchici inizieranno a fare un po' di ritorno nei prossimi anni.
@@ -368,7 +354,7 @@ della monarchia rispetto al repubblicanesimo, quando abbiamo periodi comparabili
  (FINE DOMANDA)
 
 Beh, la cosa chiave da tenere a mente è che non riesco a ricordare il razionale per questo, ma Stephen Pinker non include il
-piccolo particolare, non so se ne hai sentito parlare, delle due guerre mondiali che sono avvenute nel XX secolo.  In qualche
+piccolo particolare, delle due guerre mondiali che sono avvenute nel XX secolo.  In qualche
 modo, queste non vengono contate nei suoi dati. Penso che il modo in cui lo razionalizza sia che sta guardando le morti per
 violenza e quindi esclude le guerre, e si concentra su cose come l'omicidio o cose simili, perché non c'è modo, se stai includendo
 la Prima e la Seconda Guerra Mondiale nella sua colonna, che non perderà questo confronto.
@@ -398,7 +384,7 @@ ucciso una percentuale simile della popolazione mondiale. Quindi, essenzialmente
 (FINE RISPOSTA DEL RAGAZZO)
 
 Sì, potenzialmente penso che ci sia della verità nel fatto che, man mano che le persone diventano più civili, iniziano a
-considerare la violenza contro gli altri come meno accettabile. Devo dire che simpatizzo con quella tesi, ma penso che sia
+considerare la violenza contro gli altri come meno accettabile. Devo dire che simpatizzo con quella tesi, ma credo che sia
 completamente ridicolo nel modo in cui cerca di rappresentarla, perché c'è stata violenza, ma le guerre non sono
 casuali e la quantità di morte e distruzione che è avvenuta, quando pensi alle guerre... in altre parole, siamo in grado di vivere
 un'esistenza più civile nelle nostre città e nella nostra società moderna perché abbiamo sempre meno violenza. Forse c'è un
@@ -426,9 +412,9 @@ democratico che è avvenuto nel XX secolo, il passaggio verso le repubbliche e l
 sistema della Prima Guerra Mondiale, e l'esportazione della democrazia e del nazionalismo in tutto il mondo, come ciò che ci ha
 dato la pace. E l'unico modo in cui potresti sostenere che sia così è se rimuovi i primi 40 anni di quella storia e poi inizi a
 contare dopo la maggior parte di essa. Ma, nella mia mente, non è che penso che ci sia una diminuzione della violenza,
-probabilmente, e penso che ci sia una crescente apprezzamento tra le persone dell'importanza della cooperazione pacifica, della
-coesistenza pacifica. Penso che le persone siano meno propense a voler far parte di conflitti omicidi oggi rispetto a prima. Non
-voglio dire che le persone di oggi siano angeli, ma penso che nel tempo questo sia migliorato.
+probabilmente, e credo che ci sia una crescente apprezzamento tra le persone dell'importanza della cooperazione pacifica, della
+coesistenza pacifica. Sono dell'idea che le persone siano meno propense a voler far parte di conflitti omicidi oggi rispetto a prima. Non
+voglio dire che le persone di oggi siano angeli, ma  che nel tempo questo sia migliorato.
 
 E penso che sia inseparabile dall'analisi della semplice riduzione della preferenza temporale e del progresso nel processo di
 civilizzazione. Questo è davvero ciò di cui si tratta la civiltà, e la capacità di essere più pacifici e più accettanti verso gli
@@ -437,11 +423,11 @@ vero perché stiamo accumulando capitale, stiamo commerciando, stiamo benefician
 benefici di un'economia di mercato, vediamo i benefici della cooperazione, li vediamo molto vividamente e questo ci aiuta ad agire
 in quel modo.
 
-Ma non penso che sia giusto dire che sia la politica democratica a portarci lì.  Penso che, se mai, il passaggio verso il denaro
+Ma non penso che sia giusto dire che sia la politica democratica a portarci lì.  Se mai, il passaggio verso il denaro
 fiat e la politica democratica abbia invertito quella tendenza, perché ha imposto una preferenza temporale più alta sulle persone
-e ci sta rendendo sempre più violenti, come dimostrano tutte le guerre che stanno avvenendo, finanziate da denaro fiat. Penso che,
-se per qualche motivo fossimo riusciti ad evitare il sistema monetario del XX secolo e avessimo semplicemente continuato con il
-gold standard, avremmo avuto un mondo molto più pacifico nel XX secolo. E penso che questo avrebbe portato a una ulteriore
+e ci sta rendendo sempre più violenti, come dimostrano tutte le guerre che stanno avvenendo, finanziate da denaro fiat. 
+Se per qualche motivo fossimo riusciti ad evitare il sistema monetario del XX secolo e avessimo semplicemente continuato con il
+gold standard, avremmo avuto un mondo molto più pacifico nel XX secolo. Questo avrebbe portato a una ulteriore
 riduzione della preferenza temporale, a maggiore prosperità, a maggiore accumulazione di capitale e a una vita migliore. Quindi
 non è solo perché le cose accadono insieme che significa che siano necessariamente causate l'una dall'altra. Non sono convinto
 della propaganda progressista per questa storia.
@@ -451,8 +437,9 @@ Qualcun altro vuole aggiungere qualcosa?
 (UN RAGAZZO CHIEDE)"
 
 Beh, qui sembra che Bitcoin diventi davvero interessante, giusto? Giusto.  Proprio come un animale domestico, probabilmente gli
-Stati Uniti non torneranno a una monarchia, ma sarà interessante vedere cosa può fare Bitcoin (FINE DOMANDA). Sì, intendo dire che
-tutta questa discussione potrebbe essere un po' un punto inutile, perché se Bitcoin ci porta all'anarchia, allora chi ha bisogno
+Stati Uniti non torneranno a una monarchia, ma sarà interessante vedere cosa può fare Bitcoin (FINE DOMANDA). 
+
+Sì, intendo dire che tutta questa discussione potrebbe essere un po' un punto inutile, perché se Bitcoin ci porta all'anarchia, allora chi ha bisogno
 di una monarchia, comunque? Ma fino ad allora, suppongo che vivere sotto una monarchia possa essere consigliabile. Ma,
 naturalmente, anche le monarchie ora stanno diventando enormemente democratiche, il che è estremamente deludente. Hanno tutti i
 tipi di cose stupide come i parlamenti e così via, e il re sta diventando sempre più cerimoniale, mentre il parlamento e il primo
@@ -461,7 +448,7 @@ Forse le differenze tra monarchie e democrazie non contano più così tanto in f
 in relazione a Bitcoin è la questione dei saldi in contante di Bitcoin, e penso che questo sia qualcosa di cui parlerò nel mio
 prossimo libro, "The Fiat Standard". È particolarmente interessante vederlo ora, con la notizia di MicroStrategy, questa azienda
 da un miliardo di dollari che ha deciso di allocare 250 milioni di dollari delle sue riserve di liquidità in Bitcoin. Penso sia
-piuttosto interessante che abbiano fatto ciò, e ne abbiamo discusso anche nel seminario della scorsa settimana. Penso che sia
+piuttosto interessante che abbiano fatto ciò, e ne abbiamo discusso anche nel seminario della scorsa settimana che sia
 molto significativo che abbiano scelto questo, ed è sorprendente perché contraddice la narrativa che abbiamo sentito su Bitcoin
 per molti anni. Per molti anni, la discussione è sempre stata: quando adotterà Bitcoin Starbucks?  Quando adotterà Bitcoin
 McDonald's? Quando posso pagare la mia Pepsi o il mio caffè con Bitcoin? E la risposta sembra essere che non accadrà. Prima di
