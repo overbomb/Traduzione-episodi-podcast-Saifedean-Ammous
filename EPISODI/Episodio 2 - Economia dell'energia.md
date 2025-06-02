@@ -277,6 +277,7 @@ In realtà, io ne ho. E la mia domanda riguardava il gas naturale, perché al mo
 causa delle tensioni geopolitiche e di altre questioni, oppure puoi spedirlo con navi speciali. Ma poiché è davvero diffuso come gas, non puoi spedire una grande quantità a 
 costi competitivi. Presumo che si tratti di un problema di investimento in capitale reale. Ma in questo momento, in alcuni luoghi, è ancora davvero più economico usare il 
 carbone.
+
 (FINE INTERVENTO)
 
 Sì, è molto vero. Il problema con il gas naturale è che non è molto energetico. Sì, intendo dire, in termini di peso, quanta energia puoi trasportare in termini di peso, non è 
