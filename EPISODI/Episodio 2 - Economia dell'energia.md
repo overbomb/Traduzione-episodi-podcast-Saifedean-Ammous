@@ -1,7 +1,7 @@
 La puntata del podcast in lingua originale sul sito ufficiale: https://saifedean.com/podcast/2-economics-of-energy
 
 
-PUBBLICIÀ
+(Pubblicità)
 
 Ciao e benvenuto al secondo seminario podcast su saifedean.com. Sono il Dr. Saifedean Ammous e 
 sono qui per tenere la riunione settimanale di questo seminario, in cui discutiamo dei corsi 
