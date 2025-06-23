@@ -3,7 +3,7 @@ La puntata del podcast in lingua originale sul sito ufficiale: https://saifedean
 
 
 
-Pubblicità
+(Pubblicità)
 
 Se sei interessato a Bitcoin o all'economia austriaca, penso che troverai questa discussione interessante. 
 Spero che ti piaccia e, naturalmente, se ti piace, non esitare a iscriverti ai corsi su saifedean.com.  Di solito,
