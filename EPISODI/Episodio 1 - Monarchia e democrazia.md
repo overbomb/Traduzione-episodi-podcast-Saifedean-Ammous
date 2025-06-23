@@ -1,5 +1,8 @@
 La puntata del podcast in lingua originale: https://saifedean.com/podcast/1-monarchy-and-democracy
 
+
+
+
 Pubblicità
 
 Se sei interessato a Bitcoin o all'economia austriaca, penso che troverai questa discussione interessante. 
