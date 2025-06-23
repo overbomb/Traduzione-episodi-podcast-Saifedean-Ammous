@@ -1,4 +1,4 @@
-La puntata del podcast: https://saifedean.com/podcast/1-monarchy-and-democracy
+La puntata del podcast in lingua originale: https://saifedean.com/podcast/1-monarchy-and-democracy
 
 Pubblicità
 
