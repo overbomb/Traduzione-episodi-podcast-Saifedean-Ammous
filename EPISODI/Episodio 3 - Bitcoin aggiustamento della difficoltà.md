@@ -1,3 +1,8 @@
+La puntata del podcast in lingua originale sul sito ufficiale: https://saifedean.com/podcast/3-bitcoin-difficulty-adjustment
+
+
+
+
 In questa sessione di oggi, parleremo di economia legata a Bitcoin. Nelle ultime due settimane abbiamo discusso argomenti non correlati a Bitcoin. Oggi ci concentreremo principalmente sull'aggiustamento della difficoltà, una parte molto importante di Bitcoin e probabilmente la mia preferita. È un argomento di cui parlo nel mio libro, 'The Bitcoin Standard', ma diverse persone mi hanno detto che la discussione nel libro non è realmente sufficiente come potrebbe essere. Credo che ci sia sicuramente bisogno di una rilettura del libro dopo la sua pubblicazione. L'intero libro, infatti, porta a spiegare l'aggiustamento della difficoltà di Bitcoin.
 
 Quando arrivo a trattare l'aggiustamento della difficoltà, lo faccio in modo diretto con un paio di paragrafi, affermando che è la cosa più importante di Bitcoin. Tuttavia, penso di non aver colto la possibilità per spiegare in modo più dettagliato la realtà dell'aggiustamento della difficoltà, perché è così importante e come può aiutarci a comprendere l'economia di Bitcoin.
